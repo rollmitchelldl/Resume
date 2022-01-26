@@ -17,5 +17,7 @@
 
 #### Education
 Bacherlor's in Geography with a concentration in GIS *2017-2022*
+
 Minor in Community and Regional Planning *2017-2022*
+
 Appalachian State University | Boone, North Carolina, USA
